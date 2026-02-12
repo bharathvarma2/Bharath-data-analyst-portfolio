@@ -32,4 +32,6 @@ Data Science Intern (3 Months)
 
 ## 📫 Connect With Me
 📧 Email: varmab278@gmail.com  
-🔗 LinkedIn: (Add your LinkedIn link here)
+🔗 LinkedIn: www.linkedin.com/in/bharath-varma-0781232b5
+
+
